@@ -1,7 +1,5 @@
-hey im toast/doc/klaus ^^
+hey im toast/doc/klaus 
 
-trans, he/any
-
-low funtioning autism & ADHD
+very confused on gender but he/any
 
 very very awkward and i dont talk, if i dont reply please dont take it peronsally </3
